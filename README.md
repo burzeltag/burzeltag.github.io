@@ -1,3 +1,3 @@
 Alles Gute zum Burzeltag! 🥳
 
-![image](https://user-images.githubusercontent.com/113279816/189516453-b4990679-eb54-4907-baf3-d024283d17a7.png)
+<img src="https://user-images.githubusercontent.com/113279816/189516968-85ef1a59-0b48-45a4-ba7b-6a82f7e08020.png"  width=50% height=50%>
